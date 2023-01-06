@@ -1,1 +1,1 @@
-Nov 5 completed Section 4, #41
+Nov 6 completed Section 6, start on #58
